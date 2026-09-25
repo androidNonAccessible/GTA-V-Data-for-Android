@@ -1,0 +1,1 @@
+This file is meant for educational purposes only. I created this repository with the GTA V game datas as I personally own the actual game. This GTA V is not pirated neither cracked. The Gofile Link that I have uploaded contains the compressed game files, with all missions and high graphics. You can install and run it even with a 6GB Ram Android device.
